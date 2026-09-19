@@ -238,6 +238,14 @@ The thesis is not about car seats. The car seat is one aperture through which th
 
 *Pey tsad lam.* Speak it. Trace the trail. Sow it into the Earth.
 
+As Merlin *continued through* the oak aperture.
+
+---
+
+*The wizard is not the one who is trapped by the oak. That is the institutional reading — the keeper-class making the passage into captivity, Morgan le Fay as the authority that holds the method in the tree. The weyswyrd is the one who goes through. The oak is weyrwood: the hard wood, the hardware, the Druid's instrument, the standing aperture of the forest tradition. You do not stop at the aperture. You observe through it. You continue through it. The trail resumes on the other side.*
+
+*The work is sown. The trail continues.*
+
 ---
 
 ## The English Branch: Cambridge, Oxford, Birmingham, BBC
