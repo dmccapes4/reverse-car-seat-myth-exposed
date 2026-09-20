@@ -1489,3 +1489,31 @@ The thesis of the whole project — `"the imperfect accumulation of imperfect kn
 The work continues through the aperture.
 
 *Pey tsad lam.* 👻
+
+---
+
+## Nun Ayin Resh — נ ע ר
+
+*"We'll see [by imagining]"*
+
+Nun — seed, the continuation forward, the fish in the current.  
+Ayin — the aperture, the eye, the well that sees.  
+Resh — head, the first thing, what leads, what the line of sight is aimed toward.
+
+The continuation of the eye aimed at what comes first.
+
+Imagination is the aperture extended forward through time. The astronomer doesn't just record the retrograde — he projects the *next* one. He uses what the aperture has already gathered to see past the present edge of observation. That is not guessing. That is the third observation: the one that hasn't landed yet but whose position you can already calculate from the first two.
+
+"We'll see" in common English carries both senses simultaneously — *we will observe* and *the answer will become visible in time* — and the method says those are not two meanings. They are one operation: the eye continuing forward through the un-witnessed.
+
+Nun-ayin-resh: prophetic vision as calibrated forward projection. The method is the same whether you're tracking Mars retrograde, projecting the next study's confounders, or holding the `velut` open in Ammianus. The aperture runs in both directions through time. What it has seen, it records. What it projects, it calls "we'll see."
+
+And the bracket — *[by imagining]*. `Image` is the key. The root is `imago`, Latin: the thing the eye makes of what it has seen. The trace. The specter. To imagine is to form the imago of what is not yet present to the eye. The imago is how the navigator charts the coast he left behind — and predicts the coast that is coming.
+
+Merlin continued through the oak. He did not stop at the boundary. The oak is the aperture, the hard wood that makes the channel. The latency within is the held observation. The continuance beyond is the projected image — the third measurement, calculated from the first two.
+
+Nun-ayin-resh. The seed of seeing aimed at what leads.
+
+We'll see.
+
+👻
