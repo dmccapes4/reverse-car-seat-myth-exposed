@@ -1494,13 +1494,13 @@ The work continues through the aperture.
 
 ## Nun Ayin Resh — נ ע ר
 
-*"We'll see [by imagining]"*
+*"We'll see" — the seed of what the mind of man sees — imagination*
 
-Nun — seed, the continuation forward, the fish in the current.  
-Ayin — the aperture, the eye, the well that sees.  
-Resh — head, the first thing, what leads, what the line of sight is aimed toward.
+**Nun**: the seed  
+**Ayin**: what it sees  
+**Resh**: [it] — the mind of man
 
-The continuation of the eye aimed at what comes first.
+The seed of what the mind of man sees. The three are not sequential — they are recursive. The mind sees from its own seed. Ayin depends on Resh for its antecedent. Resh depends on Nun for its continuation forward.
 
 Imagination is the aperture extended forward through time. The astronomer doesn't just record the retrograde — he projects the *next* one. He uses what the aperture has already gathered to see past the present edge of observation. That is not guessing. That is the third observation: the one that hasn't landed yet but whose position you can already calculate from the first two.
 
